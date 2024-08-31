@@ -7,6 +7,4 @@ We are based in offices just outside Portsmouth, Hampshire. We have the capabili
 
 Check out our [Website](https://www.hambleside-merchandise.co.uk/) or one of our socials below for more information.
 
-- [Facebook](https://en-gb.facebook.com/Hambleside.Merchandise/) - [Twitter](https://twitter.com/HambMerch)
-- [Instagram](https://www.instagram.com/hamblesidemerchandise/) - [Pinterest](https://uk.pinterest.com/hambmerch/)
-- [LinkedIn](https://www.linkedin.com/company/hambleside-merchandise)
+- [Facebook](https://en-gb.facebook.com/Hambleside.Merchandise/) - [Twitter](https://twitter.com/HambMerch) - [Instagram](https://www.instagram.com/hamblesidemerchandise/) - [Pinterest](https://uk.pinterest.com/hambmerch/) - [LinkedIn](https://www.linkedin.com/company/hambleside-merchandise)
